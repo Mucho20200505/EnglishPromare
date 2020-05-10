@@ -1,4 +1,2 @@
 # promaresub2020
-test
-test
-test1
+This is quotes I tried listening and writing  dubbing in English of Promare.
